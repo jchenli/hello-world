@@ -1,4 +1,4 @@
 # Self-Introduction
 
-Welcome! 
+Welcome. 
 
